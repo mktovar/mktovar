@@ -1,3 +1,5 @@
+Interested in CS | Cybersecurity Interest | Python, Java, C++ | Critical Thinker | Strategist | Enjoyer of the Arts
+
 About Me
 
 Hello, 
